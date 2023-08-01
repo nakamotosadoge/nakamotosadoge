@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about her everything 
 - 📫 How to reach me: dm me
 - 😄 Pronouns: r o d n e y
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: we killin it
 
