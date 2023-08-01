@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on niwa
 - 🤔 I’m looking for help with somebody
 - 💬 Ask me about her everything 
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
+- 📫 How to reach me: dm me
+- 😄 Pronouns: r o d n e y
 - ⚡ Fun fact: ...
 
